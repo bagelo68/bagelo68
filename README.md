@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bagelo68
+- 👀 I’m interested in game dev
+- 🌱 I’m currently learning game dev
+- 💞️ I’m looking to collaborate on basic game devs
+- 📫 How to reach me galeva.bagelo@gmail.com
